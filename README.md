@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on school.
 - 🌱 I’m currently learning about investments.
-- 🤔 I’m looking for help with codes, very help! SOS
+- 🤔 I’m looking for help with codes, very help! SOS 
 - 📫 How to reach me: Brasil <3
 - 😄 Pronouns: she/her.
 **I need to help whit codes!!!!!**
