@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: she/her.
 **I need to help whit codes!!!!!**
 Insta: @mas_thaiss
-![](https://media1.tenor.com/m/bBk2sSzs7rcAAAAd/coke-rakeitoop.gif)
+![](https://media1.tenor.com/m/bBk2sSzs7rcAAAAd/coke-rakeitoop.gif) 
