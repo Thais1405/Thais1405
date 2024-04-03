@@ -8,6 +8,7 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with codes, very help! SOS 
 - 📫 How to reach me: Brasil <3
 - 😄 Pronouns: she/her.
+  
 **I need to help whit codes!!!!!**
   
 Insta: @mas_thaiss
